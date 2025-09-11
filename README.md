@@ -10,3 +10,4 @@ quitar momentaneamente la droga, pero siempre
 buscara la forma de volver a ella, con el paso del tiempo
 se me fue reduciendo poco a poco, aunque no se me quita.
 
+creo que esto sirve
